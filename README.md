@@ -1,0 +1,1 @@
+# -To-connect-a-16A-socket-outlet-controlled-by-a-single-pole-switch-interactive-circuit-diagram
